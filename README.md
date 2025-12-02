@@ -1,1 +1,1 @@
-# RS-MAFI![Uploading figure.png…]()
+# RS-MAFI
